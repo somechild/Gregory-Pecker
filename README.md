@@ -1,7 +1,7 @@
 # Gregory-Pecker
 le ISU
 
-** Official website of the author who wrote the legendary tale entitled: **
+*Official website of the author who wrote the legendary tale entitled:*
 ## One night in mongolia
 
 > Truly a fascinating tale. I loved it so much I did my grade 11 english ISU on it! -- Abdullah Rao
